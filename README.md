@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAPJ891102HCHNXM04
+CAPJ891102HCHNXM04
